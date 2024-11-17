@@ -27,3 +27,5 @@ Community verify the reports by binary voting
 3. Summit a report
 4. Vote
 5. Requtation statistics
+![Asian Woman Holding Talisman (1)](https://github.com/user-attachments/assets/299c0491-3d36-4c73-9fa2-c4b5c95197db)
+
